@@ -1,0 +1,4 @@
+- 👋 Hey, im CJ.
+- 👀 At the moment I'm trying to learn to code, just starting!
+- 🌱 Not working on anything...
+- 📫 Reach me at cjcowsert582@gmail.com!
